@@ -1,6 +1,6 @@
 # Colleague name - Professional Development plan
 
-The aim of this plan is to help me support you in your ongoing professional development. I want you to be able to achieve your career goals - not just at this company, but beyond. Your goals don’t have to be related to ForUsAll’s business. They’re for you.
+The aim of this plan is to help me support you in your ongoing professional development. I want you to be able to achieve your career goals - not just at this company, but beyond. Your goals don’t have to be related to our business. They’re for you.
 
 ## What is your personal mission statement?
 
